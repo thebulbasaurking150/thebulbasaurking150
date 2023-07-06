@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @thebulbasaurking150
+- 👀 I’m interested in discord
+- 🌱 I’m currently learning japanese
+- 💞️ I’m looking to collaborate on scratch or discord
+- 📫 How to reach me: follow me on scratch
